@@ -1,14 +1,8 @@
 
 
 
-GROUPE :
 
 
-Amine BLALTI    
-
-Abdelhakim Bougjdi
-
-Mustapha Masry
 
 
 
